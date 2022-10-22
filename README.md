@@ -3,7 +3,7 @@
 # 🇳 🇴 🇹 🇪 
 # 𝐃𝐨𝐧'𝐭 𝐈𝐦𝐩𝐨𝐫𝐭 𝐨𝐫 𝐅𝐨𝐫𝐤𝐞𝐝 𝐓𝐡𝐢𝐬 𝐑𝐞𝐩𝐨, 𝐈𝐟 𝐘𝐨𝐮 𝐈𝐦𝐩𝐨𝐫𝐭 𝐨𝐫 𝐅𝐨𝐫𝐤𝐞𝐝 𝐘𝐨𝐮𝐫 𝐀𝐜𝐜𝐨𝐮𝐧𝐭 𝐖𝐢𝐥𝐥 𝐆𝐞𝐭 𝐁𝐚𝐧𝐧𝐞𝐝 😏
 
-<p align="center"><a href="https://t.me/rjbr0"><img src="https://telegra.ph/file/b9046390e87cbc3c5b6f0.jpg"></a></p>
+<p align="center"><a href="https://t.me/rjbr0"><img src="https://te.legra.ph/file/43eb81b7a99092f9a3197.jpg"></a></p>
 <p align="center">
     <br><b>𝐆𝐫𝐨𝐨𝐭 𝐌𝐮𝐬𝐢𝐜 𝐍𝐞𝐭𝐰𝐨𝐫𝐤 𝐈𝐬 𝐚 𝐓𝐞𝐥𝐞𝐠𝐫𝐚𝐦 𝐁𝐨𝐭 𝐏𝐫𝐨𝐣𝐞𝐜𝐭 𝐓𝐡𝐚𝐭'𝐬 𝐀𝐥𝐥𝐨𝐰 𝐘𝐨𝐮 𝐓𝐨 𝐏𝐥𝐚𝐲 𝐌𝐮𝐬𝐢𝐜 𝐎𝐧 𝐓𝐞𝐥𝐞𝐠𝐫𝐚𝐦 𝐕𝐨𝐢𝐜𝐞 𝐂𝐡𝐚𝐭 𝐆𝐫𝐨𝐮𝐩</b><br>
 
