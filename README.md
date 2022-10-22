@@ -1,7 +1,7 @@
 # 𝐆𝐫𝐨𝐨𝐭𝐌𝐮𝐬𝐢𝐜𝐁𝐨𝐭 🌱
 # గ్రోట్ మ్యూజిక్ బాట్
 
-<p align="center"><a href="https://t.me/Honey_Music_Robot"> <img src="https://img.shields.io/badge/𝐆𝐫𝐨𝐨𝐭 𝐌𝐮𝐬𝐢𝐜 𝐁𝐨𝐭-violet?&style=for-the-badge&=telegram" width="200" height="45.45"></a></p>
+<p align="center"><a href="https://t.me/Honey_Music_Robot"> <img src="https://img.shields.io/badge/𝐆𝐫𝐨𝐨𝐭 𝐌𝐮𝐬𝐢𝐜 𝐁𝐨𝐭-maroon?&style=for-the-badge&=telegram" width="200" height="45.45"></a></p>
 
 # 🇳 🇴 🇹 🇪 
 # 𝐃𝐨𝐧'𝐭 𝐈𝐦𝐩𝐨𝐫𝐭 𝐨𝐫 𝐅𝐨𝐫𝐤𝐞𝐝 𝐓𝐡𝐢𝐬 𝐑𝐞𝐩𝐨, 𝐈𝐟 𝐘𝐨𝐮 𝐈𝐦𝐩𝐨𝐫𝐭 𝐨𝐫 𝐅𝐨𝐫𝐤𝐞𝐝 𝐘𝐨𝐮𝐫 𝐀𝐜𝐜𝐨𝐮𝐧𝐭 𝐖𝐢𝐥𝐥 𝐆𝐞𝐭 𝐁𝐚𝐧𝐧𝐞𝐝 😏
