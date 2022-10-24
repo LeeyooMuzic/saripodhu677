@@ -18,6 +18,9 @@
 
 <p align="center"><a href="https://iv.iamidiotareyoutoo.com/1016b36829514d0ba3f7a1a7d4c23ec1_vTelegraphBot"> <img src="https://img.shields.io/badge/𝐁𝐨𝐭 𝐂𝐨𝐦𝐦𝐚𝐧𝐝𝐬-violet?&style=for-the-badge&=telegram" width="200" height="45.45"></a></p>
 
+## 𝐆𝐫𝐨𝐨𝐭 𝐒𝐭𝐫𝐢𝐧𝐠 𝐒𝐞𝐬𝐬𝐢𝐨𝐧 😝
+
+<p align="center"><a href="https://replit.com/@GrootNetwork/Groot-String-Session?v=1"> <img src="https://img.shields.io/badge/String%20Session-darkblue?style=for-the-badge&logo=replit" width="220" height="45.45"/></a></p>
 
 
 ## 𝐃𝐞𝐩𝐥𝐨𝐲 𝐨𝐧 𝐇𝐞𝐫𝐨𝐤𝐮 🤫
